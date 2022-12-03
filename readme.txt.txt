@@ -1,0 +1,1 @@
+Na szkolenie w readme.txt
